@@ -9,3 +9,4 @@ kambyzkargrshhamt/kambyzkargrshhamt is a ✨ special ✨ repository because its 
 You can click the Preview link to take a look at your changes.
 --->
 Hello friends, I thank you very much for your love. This is the kind love that God put in front of me. vpn It's not true, I don't have a laptop. If I had a strong account with an IP elsewhere, I would withdraw the money I have. 4 currency exchange coupons with Ford's card. I gave Twitter for treatment for my daughter. I also have a Transwalt wallet.  
+دوستون دارم فقط مزاحمت من شلوغ بازی میکنم راستی برنامه که NFT اونجا بخاطر نداشتن ربات دستی  میزنم ولی دوستان برنامه  لب تاب میفرستن ممنونم ربات 
